@@ -1,1 +1,1 @@
-# smartfitnessgym.github.io
+# smartfitnessgymm.github.io
